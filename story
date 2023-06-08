@@ -1,1 +1,1 @@
-Once upon a time, there used to be a very arrogant Rabbit in a forest. One day, he was challenged by a slow turtle to have a race with him.
+Once upon a time, there used to be a very arrogant Rabbit in a forest. One day, he was challenged by a slow turtle to have a race with him. Rabbit laughed on it but accepted to do the challenge.
